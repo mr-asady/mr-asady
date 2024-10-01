@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hey there! I'm currently working on Atomir PHP framework.<br>I'm looking for help with Atomir PHP framework.<br>In addition, I'm diving into machine learning and smart home technology.<br>Don't ask me anything—just ask Google! 😉<br>Fun fact: After completing my course, you'll be able to hack any site or platform! 😄<br>N.S
+Hey there! I'm currently working on my damn life.<br>In addition, I'm diving into machine learning and smart home technology.<br>Don't ask me anything—just ask Google! 😉<br>Fun fact: After completing my course, you'll be able to hack any site or platform! 😄<br>N.S
 
 
 ## 🌐 Socials:
